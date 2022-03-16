@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning nothing
 - 📫 How to reach me ? you can't
 
+yolo
+
 nanos world > s&box
 
 <!---
